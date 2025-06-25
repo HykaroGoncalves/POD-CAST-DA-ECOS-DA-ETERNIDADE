@@ -2,6 +2,7 @@
 
 🎙️ [INTRODUÇÃO]
 Seja muito bem-vindo ao Ecos da Eternidade – Escatologia Revelada para os que Discernem os Tempos.
+![Uploading Copilot_20250617_202746.png…]()
 
 Eu sou Hykaro Gonçalves, e neste breve episódio, vamos juntos mergulhar nos mistérios do fim dos tempos com base sólida na Palavra de Deus.
 Hoje, vamos explorar dois assuntos fascinantes:
